@@ -1,1 +1,1 @@
-# Aprendisaje-Automatico
+Se adjuntan trabajo de las semanas.
